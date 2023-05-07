@@ -1,0 +1,1 @@
+The Polimi Motorcycle Factory team, founded in 2015 by Mechanical Engineering students, is a world champion in the MotoStudent petrol category. With 90 members and a professor tutor, the team competes in the Motostudent competition, designing and building racing motorcycle prototypes to compete with universities worldwide.
